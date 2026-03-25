@@ -10,7 +10,7 @@
 
 ## 🌌 Sobre mim
 
-Sou um profissional em **transição de carreira** com mais de 8 anos de experiência como **encarregado de loja em uma rede varejista ,Vendas de Bebidas...**.Passando pelos mais variados setores como aux. administrativo até esporte aventuras e controles. Hoje, mergulho com intensidade no mundo da **tecnologia**, estudando, desenvolvendo e sonhando com soluções que unem **inteligência artificial**, automação e impacto real. 
+estudando, desenvolvendo  **inteligência artificial**, automação e impacto real. 
 
 🎓 Estudante de **Análise e Desenvolvimento de Sistemas** sempre gostei muito de tecnologia ,quando pequeno abrria coisas na oficina do Meu pai, Estudando de verdade a 3 meses . Atualmente focado em:
 
