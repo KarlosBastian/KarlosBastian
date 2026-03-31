@@ -10,7 +10,7 @@
 
 ## 🌌 Sobre mim
 
-estudando, desenvolvendo  **inteligência artificial**, automação e impacto real. 
+estudando, desenvolvendo com  **inteligência artificial**, automação e impacto real. 
 
 🎓 Estudante de **Análise e Desenvolvimento de Sistemas** sempre gostei muito de tecnologia ,quando pequeno abrria coisas na oficina do Meu pai, Estudando de verdade a 3 meses . Atualmente focado em:
 
